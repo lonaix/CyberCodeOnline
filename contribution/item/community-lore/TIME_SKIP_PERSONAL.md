@@ -1,0 +1,1 @@
+Developed by HUDEX Industries, it allows users to bypass the mental tedium of surveillance or data decryption by accelerating their perception of time. With this device, a user could experience hours in mere moments. A phenomenon known as Time Skipping — the ability to leap over AFK, passive moments in one's activity. Emerged as both a technological marvel and a societal curse.
